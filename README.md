@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @brenda010461
+- 👀 I’m interested in marketing, antropology
+- 🌱 I’m currently learning  antropologia y coreano
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me brendasofi02@gmail.com
